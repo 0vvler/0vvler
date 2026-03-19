@@ -1,2 +1,1 @@
-![](https://komarev.com/ghpvc/?username=dandysworld&color=38323E&label=࣪☾&base=6969)
-![<3](https://github.com/user-attachments/assets/6ca43808-4ffe-490f-afde-ad366f8a5f9b)
+![yuri vs yaoi](https://github.com/user-attachments/assets/e57fa27b-8118-4da2-a1ba-e2eabe5708a4)
